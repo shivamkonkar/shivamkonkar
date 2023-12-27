@@ -1,4 +1,4 @@
-[![MasterHead](https://drive.google.com/file/d/1lwhDHmqw41WQIF5KAx9T83avwk8JUQKA/view?usp=drive_link)](https://rishavchanda.io)
+[![MasterHead](https://github.com/shivamkonkar/shivamkonkar/blob/main/ddy96fg-0fb16d41-a1dd-467f-9d92-9314d710291d.gif)](https://shivamkonkar.ninja)
 
 
 <h1 align="center">Hi 👋, I'm shivamkonkar</h1>
